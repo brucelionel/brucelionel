@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @brucelionel
-- 👀 I’m interested in watching movies
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning IT
 - 📫 brucelionel50@gmail.com 
 - 😄 Pronouns: Lio
