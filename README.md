@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @brucelionel
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning IT
+- 🌱 I’m currently BCS
 - 📫 brucelionel50@gmail.com 
 - 😄 Pronouns: Lio
 
